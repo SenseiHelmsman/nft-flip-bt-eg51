@@ -1,4 +1,4 @@
-# 
+# premium nft trading bot plugins is the best nft trading bot plugins with gas-optimization and slippage-control. Safe, reliable, and optimized for NFT sniper, trading, and
 
 
 
